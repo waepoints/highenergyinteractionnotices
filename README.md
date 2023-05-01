@@ -6,6 +6,8 @@ If interacted with Patrick Winston Blaine, and Eva Chatterjee, and the systems o
 
 ## Healing, Body Modification and Intensive Interactions of Wattages Above 10.55 Watts Per Hour Causes a Downturn After Specific Timeframes
 
+### **A period of 50 years before Downturn applies in the right likelihoods to tracking healing of 192.113 Watts per hour**
+
 > Pain, Cell Degradation, Ache, Nausea During Downturn
 
 > Death Or Disabled At End
