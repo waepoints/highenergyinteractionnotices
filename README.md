@@ -12,7 +12,7 @@ If interacted with Patrick Winston Blaine, and Eva Chatterjee, and the systems o
 
 > **1-70% Likelihood Of Downturn After A Set Period After Interaction**
 
-1,418 Reports As Of May 1, 2023
+1,418 Reported As Of May 1, 2023
 
 **Downturn Begin And End Period**
 
