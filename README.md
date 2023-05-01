@@ -10,6 +10,10 @@ If interacted with Patrick Winston Blaine, and Eva Chatterjee, and the systems o
 
 > Death Or Disabled At End
 
+> **1-70% Likelihood Of Downturn After A Set Period After Interaction**
+
+1,418 Reports As Of May 1, 2023
+
 **Downturn Begin And End Period**
 
 ### Sub 91 Watts Per Hour
