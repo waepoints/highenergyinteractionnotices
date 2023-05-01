@@ -1,4 +1,4 @@
-# Notices About Rendered Distributed Energy System Interactions
+# Notices About Rendered Distributed High Energy System Interactions
 
 ## Important Notice About Downturn From Tracking Healing & First Aid System Commands And Statistics With High Energy System Interactions
 
