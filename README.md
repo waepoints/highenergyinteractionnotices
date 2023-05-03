@@ -2,7 +2,7 @@
 
 ## Important Notice About Downturn From Tracking Healing & First Aid System Commands And Statistics With High Energy System Interactions
 
-If interacted with Patrick Winston Blaine, and Eva Chatterjee, and the systems of, during the period between 2018-2023 and currently until further notice, read the following notice about the interactions with what the repository calls application of effects applied, or high energy interactions with us and the technology interacting with us most commonly…
+If interacted with Patrick Winston Blaine, and his girlfriend at the time, Eva, and the systems of, during the period between 2018-2023 and currently until further notice, read the following notice about the interactions with what the repository calls application of effects applied, or high energy interactions with us and the technology interacting with us most commonly…
 
 ## Healing, Body Modification and Intensive Interactions of Wattages Above 10.55 Watts Per Hour Causes a Downturn After Specific Timeframes
 
