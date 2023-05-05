@@ -8,7 +8,7 @@ If interacted with Patrick Winston Blaine, and his girlfriend at the time, and t
 
 ### **A period of 50 years before Downturn applies in the right likelihoods to tracking healing of 192.113 Watts per hour**
 
-> Pain, Cell Degradation, Ache, Nausea During Downturn
+> Pain, Cell Degradation, Stomach Ache, Nausea Most of the Year, in the first few days of the year an uptick, During Downturn
 
 > Death Or Disabled At End
 
