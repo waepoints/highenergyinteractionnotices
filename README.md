@@ -4,7 +4,7 @@
 
 If interacted with Patrick Winston Blaine, and his girlfriend at the time, and the systems of, during the period between 2018-2023 and currently until further notice, read the following notice about the interactions with what the repository calls application of effects applied, or high energy interactions with us and the technology interacting with us most commonly…
 
-## Healing, Body Modification and Intensive Interactions of Wattages Above 10.55 watts Per Hour Causes a Downturn After Specific Timeframes
+## Healing, Body Modification and Intensive Interactions of Wattages Above 10.55 watts Per Day May Cause a Downturn After Specific Timeframes
 
 ### **A period of 50 years before Downturn applies in the right likelihoods to tracking healing of 192.113 watts per Day**
 
